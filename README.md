@@ -82,7 +82,7 @@ A big thank you to the following sources for helping us document this meme and i
 - Spotify - TRALALERO TRALALA by Producer of Ohio
 - Instagram - Fake Toys of Italian Brainrot Characters
 
-(tralala)[https://tralala.run]
+[tralala](https://tralala.run)
 ---
 
 That’s it, folks! Stay absurd, stay hilarious, and keep the Tralalero Tralala spirit alive! 🌟
